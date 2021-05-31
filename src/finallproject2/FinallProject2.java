@@ -138,9 +138,4 @@ public class FinallProject2 {
 }
 rwesxgvbcfdughfurehbgnkreghjnvkljdhgjrhegurhengfljrheu
         irinananananananan
-hjdifhjreihuireh
-ghgyhgygytyt gkjkidjusidhshdsuhs
-lshvshjshjdsh
-jhsjuh
-
-JIKFJEWIFHJEGFHWJUGHREGHURHE
+IRINAAAAAAAAAAAAAAAAAAAAAAAAAAA
